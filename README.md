@@ -3,3 +3,4 @@
 [IBMDesign20250619-27-m6tu0r (Data Science).pdf](https://github.com/user-attachments/files/21104369/IBMDesign20250619-27-m6tu0r.Data.Science.pdf)
 [IBMDesign20250704-28-by6hdx.pdf](https://github.com/user-attachments/files/21104375/IBMDesign20250704-28-by6hdx.pdf)
 ![9f1c9952-60e7-4bc7-a958-c047dee154ff](https://github.com/user-attachments/assets/847cdc3a-082d-430c-bb34-485eb65f6f42)
+![f4e96900-9a24-4e74-bdae-02b14b562112](https://github.com/user-attachments/assets/63d5a47b-dda9-4166-b647-90f87e9fdc35)
