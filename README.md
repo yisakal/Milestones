@@ -1,0 +1,5 @@
+# Milestones[Coursera 72DM2SZ7T2RK (Prompt Engineering).pdf](https://github.com/user-attachments/files/21104354/Coursera.72DM2SZ7T2RK.Prompt.Engineering.pdf)
+[Coursera_python_fundamentals.pdf](https://github.com/user-attachments/files/21104361/Coursera_python_fundamentals.pdf)
+[IBMDesign20250619-27-m6tu0r (Data Science).pdf](https://github.com/user-attachments/files/21104369/IBMDesign20250619-27-m6tu0r.Data.Science.pdf)
+[IBMDesign20250704-28-by6hdx.pdf](https://github.com/user-attachments/files/21104375/IBMDesign20250704-28-by6hdx.pdf)
+![9f1c9952-60e7-4bc7-a958-c047dee154ff](https://github.com/user-attachments/assets/847cdc3a-082d-430c-bb34-485eb65f6f42)
